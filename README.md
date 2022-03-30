@@ -10,3 +10,6 @@
 
 ## HappyP0628
 - [บทสวดมนูญชัย](https://clips.twitch.tv/OriginalSoftSquidTheRinger-fXmKwSYSRQnriaFv) 
+
+## Lunyatic
+- [เบญจางคประดิษฐ์](https://clips.twitch.tv/GeniusRepletePenguinWow-oncm6URGOTt_gBTQ)

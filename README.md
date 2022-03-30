@@ -43,6 +43,9 @@
 ## Pandadhada
 - [ที่มาของคำว่าเยอรมัน](https://clips.twitch.tv/ModernStrangeBurritoRaccAttack-wa66GTcD5lOBPSOC)
 
+## Quaften
+- [บอกผมฝันดีก็พอละครับ](https://clips.twitch.tv/SparklingCharmingBurritoTF2John-HkChhlxncSwUpyGL)
+
 ## SaintsDeumm
 ### ขยี้
 ![image](https://user-images.githubusercontent.com/68820538/160891488-5df0574e-fe48-45ab-ad5c-b2747b1820f3.png)

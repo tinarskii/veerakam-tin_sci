@@ -19,6 +19,7 @@
 - [ถนนประดิษฐ์มนูธรรม](https://clips.twitch.tv/HardAntediluvianHabaneroMcaT-a1eE0MGbWNRMI3XA)
 
 ## Patiphan Phengphao
+- [อุทิศคิดคำคม](https://youtube.com/clip/Ugkxjzi_-ktSt5Wl1aiUW8t7CmYY9tclbU8O)
 - [เก้าอี้โค้ช](https://youtube.com/clip/UgkxV86miMJp1qzrJhozGNKxQGJbgwC3WITd)
 - [แต่ก็โม้ไว้หน่อย](https://youtube.com/clip/Ugkx9wD5s5RX5b2QI4qOX5ui8JXOuk4hAsoZ)
 

@@ -29,6 +29,7 @@
 
 ## HappyP0628
 - [บทสวดมนูญชัย](https://clips.twitch.tv/OriginalSoftSquidTheRinger-fXmKwSYSRQnriaFv) 
+- [พรีเซนเตอร์จังหวัดสมุทรปราการ](https://clips.twitch.tv/DelightfulWonderfulDumplingsImGlitch-5PzcF_A_-SD7QqEp)
 
 ## MillYBill
 - [เบญจางคประดิษฐ์](https://clips.twitch.tv/AgileKathishWrenCharlietheUnicorn-pZ4Z1-Ud5FFF7J54)
